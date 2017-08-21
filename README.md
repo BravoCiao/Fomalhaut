@@ -1,4 +1,23 @@
-# Fomalhaut
+# 计划
 
-### 北落师门，新宿齐聚。
-![Fomalhaut](https://upload.wikimedia.org/wikipedia/commons/a/a3/Fomalhaut_with_Disk_Ring_and_extrasolar_planet_b.jpg)
+### 三人成行，或为断章或为长文，不论篇幅，意在笔耕不辍！
+
+#### 何谓不辍？
+
+一周三张卡，两周连卡成文；
+
+#### 可限题材？
+
+否！
+
+三人白日皆忙，如若特地为写作而写，不免添了负担；
+
+不如将白日种种，或阅读感悟，或心中感慨，抒胸臆，理思路。
+
+#### 有刻意练习否？
+
+不设练习，是为时间所虑；
+
+
+### 农历闰六月三十 其林记
+
